@@ -1,4 +1,4 @@
-## Idziemy rozwalić Świsłockiego i Wrzeciono naszym geniuszem 👋
+## Idziemy rozwalić ten projekt 👋
 
 <!--
 
